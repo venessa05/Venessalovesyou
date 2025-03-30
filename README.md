@@ -1,2 +1,0 @@
-# Venessalovesyou
-Selamat ulang tahun
